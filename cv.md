@@ -8,7 +8,7 @@
  
  > Linkedin: [View profile](https://www.linkedin.com/in/may-nikolaishvili-69565217a/)
  
- > Phone : +995 598 700 250
+ > Phone : +995 598 700 275
  
 ---
 ### *About me:*
